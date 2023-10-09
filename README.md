@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rajsingharia@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/166TIC7UWu7Cp1viaB_nPa4UD2-amd31T/view?usp=sharing](https://drive.google.com/file/d/166TIC7UWu7Cp1viaB_nPa4UD2-amd31T/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1DeFA_Ns2ZFxEEniGM2r4Taf9q7KAvSMR/view?usp=drive_link)
 
 - ⚡ Fun fact **I can also draw**
 
