@@ -3,13 +3,13 @@
 
 - 🔭 I’m currently working at **Samsung R&D Institute India-Delhi**
 
-- 🌱 I’m currently learning **Nestjs**
+- 🌱 I’m currently learning **Nextjs**
 
 - 👯 I’m looking for new roles in **Software Engineer**
 
 - 📫 How to reach me **rajsingharia@gmail.com**
 
-- 📄 Know about my experiences **https://drive.google.com/file/d/1DeFA_Ns2ZFxEEniGM2r4Taf9q7KAvSMR/view?usp=drive_link**
+- 📄 Know about my experiences **https://shorturl.at/cjtJ7**
 
 - ⚡ Fun fact **I can also draw**
 
